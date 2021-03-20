@@ -5,3 +5,5 @@
 [Link YouTube Minggu 4](https://youtu.be/DUMjLFI18ng)
 
 [Link YouTube Quiz 1](https://youtu.be/-GSHnrpJqw0)
+
+[Link YouTube Minggu 6](https://youtu.be/kzrBQZ4wMU8)
